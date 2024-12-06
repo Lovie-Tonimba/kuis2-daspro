@@ -1,1 +1,1 @@
-last kuis
+last ku
